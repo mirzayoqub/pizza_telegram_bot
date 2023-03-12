@@ -1,4 +1,4 @@
 # ╔=======================╗
-# ║ Production by Famaxth ║
-# ║ Telegram - @por0vos1k ║
+# ║ Production by yoqub   ║
+# ║ Telegram - @yoqub     ║
 # ╚=======================╝
